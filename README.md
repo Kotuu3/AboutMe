@@ -11,7 +11,6 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **kotuu333@gmail.com**
 
 - ⚡ Fun fact **I use arch btw.**
 
